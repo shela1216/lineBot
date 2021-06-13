@@ -1,1 +1,1 @@
-# lineBot
+# 此頁僅配合GOOGLE AD 轉址
